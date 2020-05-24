@@ -1,0 +1,2 @@
+# wiztex.com
+Private deals
